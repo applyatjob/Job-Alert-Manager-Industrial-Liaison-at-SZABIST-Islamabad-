@@ -1,4 +1,4 @@
-**# Job-Alert-Manager-Industrial-Liaison-at-SZABIST-Islamabad**
+** Job-Alert-Manager-Industrial-Liaison-at-SZABIST-Islamabad**
 
 Are you prepared to advance in your career? SZABIST Islamabad University is currently hiring for the position of Manager Industrial Liaison — a key role where you’ll build valuable connections between academia and the industry.
 If you have strong communication skills, strategic thinking, and relevant qualifications, this is your chance to step into a leadership position at one of Pakistan’s top educational institutions.
